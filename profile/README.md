@@ -4,6 +4,8 @@
 
 **Tunnel Rush** is an **epic 3D racing runner** that throws you into a **blazing neon tunnel** filled with deadly obstacles, insane speed, and non-stop action. As one of the most **addictive hyper casual games**, this game will push your reflexes to the **ultimate limit**.
 
+## <a href="https://1kb.link/UuMlnP">👉 Play Tunnel Rush Unblocked Games NOW 👈</a>
+
 Imagine racing through a vortex of light, color, and danger — that’s **Tunnel Rush**. It's not just a game; it’s a **test of survival**.
 
 ---
